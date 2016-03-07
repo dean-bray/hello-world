@@ -5,7 +5,7 @@ as you walk along the Strand
 That life's a bitter battle at its best.
 That if you only knew it and would lend a helping hand
 Then every man could meet his final test.
-The world is but a stage; my Friend.
+The world is but a stage; my friend.
 And life is but a game.
 And how you play is all that matters in the end.
 For whether a man is right or wrong
